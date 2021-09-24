@@ -1,0 +1,1 @@
+# Coronavirus-spatially-smoothed-decease-in-France
